@@ -1,0 +1,5 @@
+- 👋 Hi, I’m @Brendon1911
+- 👀 I’m interested in blockchain and DApp development.
+- 🌱 I’m currently learning blockchain and DApp development.
+- 💞️ I’m looking to collaborate on blockchain and DApp projects.
+- 📫 How to reach me ... You can reach me at brendonrichards93@gmail.com.
